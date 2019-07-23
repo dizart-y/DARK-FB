@@ -15,7 +15,6 @@ Maaf Gaes Kemarin Script Eror Karna Lagi Di Perbaiki Script
 Maaf Juga ya Yang Kemarin Pakai Script Ini Tiba2 Eror, Sebab Ada Gangguan Script Yang Menjangaal Fitur2 Nya Udah Saya Tambahin Kemarin Fitur2 Sedikit
 
 Sekarang Kalian Bisa Pakai Script, Tanpa Ada Kejanggalan
-
 Maaf Bila Saya Agak Telat Benerin Script Karena Saya Sibuk Duta Kerjaan Numpuk
 
 
